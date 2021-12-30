@@ -1,2 +1,1 @@
 # wedding
-ảnh cưới nè
